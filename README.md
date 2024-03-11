@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Vrsuperr
+- 👀 I’m interested in ...Gorilla tag
+- 📫 How to reach me ...https://discord.gg/RcBsnaA8
+- 😄 Pronouns: ...monkey
